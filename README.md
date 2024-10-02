@@ -1,4 +1,4 @@
-# Kursovaya-rabota
+# Kursovaya-rabota ХУУУУЙ
 
 https://docs.google.com/document/d/1JJQBvgG03DYTDtfX1Xhg1qLU2b5gg0hgSMqqzUKN7KI/edit
 
